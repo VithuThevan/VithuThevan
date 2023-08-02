@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 Myself Vithursan Thevendran
-I am currently an undergradue of University of Moratuwa, Sri Lanka, reading B.Sc (Hons.) in Information Technology
+I am currently an undergraduate at University of Moratuwa, Sri Lanka, reading B.Sc (Hons.) in Information Technology.
 I always love coding, and I always wish to collaborate with others.
-And I am a very good learner, and a team player.
+And I am a very good learner and a team player.
 You can reach me via my email - thevendranvithursan@gmail.com
