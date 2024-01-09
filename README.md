@@ -19,4 +19,4 @@ Myself Vithursan Thevendran
 I am currently an undergraduate at University of Moratuwa, Sri Lanka, reading B.Sc (Hons.) in Information Technology.
 I always love coding, and I always wish to collaborate with others.
 And I am a very good learner and a team player.
-You can reach me via my email - thevendranvithursan@gmail.com
+You can reach me via my email - vithursan1003@gmail.com
